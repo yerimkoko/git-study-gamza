@@ -1,1 +1,1 @@
-study
+Gamza is very delicious.
